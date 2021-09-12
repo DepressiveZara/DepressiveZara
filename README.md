@@ -1,6 +1,6 @@
 <h1> Xin chào <img src="https://github.com/souvikguria98/souvikguria98/blob/master/Hi.gif" width="25"></h1> 
 
-Tớ tên là Nguyễn Huy Hoàng còn được có biệt danh là ⭐ Eris
+Tớ tên là Nguyễn Huy Hoàng còn được có biệt danh là Chúa tể Quibu ❄
 
 
 
@@ -14,17 +14,19 @@ Tớ tên là Nguyễn Huy Hoàng còn được có biệt danh là ⭐ Eris
 
 
 
-- ⭐ Tôi tên là **Nguyễn Huy Hoàng**
+- ❄ Tôi tên là **Nguyễn Huy Hoàng**
 
-- ⭐ Học sinh **THPT**
+- ❄ Học sinh **THPT**
 
-- ⭐ Date of birth : **17/12/2005**
+- ❄ Date of birth : **17/12/2005**
 
-- ⭐ Chiều cao : **1m7**
+- ❄ Chiều cao : **1m7**
 
-- ⭐ Tính cách : vừa **ngu**, vừa **thiểu năng**
+- ❄ Cân nặng : 5x .__.
 
-- ⭐ Tôi hiện tại đang sinh sống tại **Bắc Ninh**
+- ❄ Tính cách : vừa **ngu**, vừa **thiểu năng**
+
+- ❄ Tôi học tập và  sinh sống tại **Bắc Ninh**
 
 
 
@@ -32,11 +34,11 @@ Tớ tên là Nguyễn Huy Hoàng còn được có biệt danh là ⭐ Eris
 
 
 
-- ⭐ Thích nghe nhạc 
+- ❄ Thích nghe nhạc US - UK
 
-- ⭐ Thích chơi game (LQM)
+- ❄ Thích chơi game (LQM) 
 
-- ⭐ Thích phá Facebook, xem alime
+- ❄ Thích lướt Facebook, xem alime
 
 
 
@@ -44,15 +46,15 @@ Tớ tên là Nguyễn Huy Hoàng còn được có biệt danh là ⭐ Eris
 
 
 
-- ⭐ Facebook : **[Nguyễn Huy Hoàng](https://www.facebook/HuyHoangUwU)**
+- ❄ Facebook : **[Nguyễn Huy Hoàng](https://www.facebook/HuyHoangUwU)**
 
-- ⭐ Gmail : **[eris.privacy@gmail.com](https://gmail.com)**
+- ❄ Gmail : **[eris.privacy@gmail.com](https://gmail.com)**
 
-- ⭐ Github : **[Nguyễn Huy Hoàng](https://github.com/erislovely)**
+- ❄ Github : **[Nguyễn Huy Hoàng](https://github.com/erislovely)**
 
-- ⭐ Zalo : **[Nguyễn Huy Hoàng](0338115856)**
+- ❄ Zalo : **[Nguyễn Huy Hoàng](0338115856)**
 
-- ⭐ Tiktok : **[Nguyễn Huy Hoàng](https://www.tiktok.com/@privacy_eris)**
+- ❄ Tiktok : **[Nguyễn Huy Hoàng](https://www.tiktok.com/@privacy_eris)**
 
 - -------------------------------------------------
-- **Thanks For Reading** 🔥🔥🔥
+- **Thanks For Reading**  👑
