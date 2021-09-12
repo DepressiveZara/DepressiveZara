@@ -52,7 +52,7 @@ Tớ tên là Nguyễn Huy Hoàng còn được có biệt danh là ⭐ Eris
 
 - ⭐ Zalo : **[Nguyễn Huy Hoàng](0338115856)**
 
-- ⭐ Website : **[Nguyễn Huy Hoàng - Delver](hoangsiuzip.blogspot.com)**
+- ⭐ Tiktok : **[Nguyễn Huy Hoàng](https://www.tiktok.com/@privacy_eris)**
 
 - -------------------------------------------------
 - **Thanks For Reading** 🔥🔥🔥
