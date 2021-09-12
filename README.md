@@ -50,7 +50,9 @@ Tớ tên là Nguyễn Huy Hoàng còn được có biệt danh là ⭐ Eris
 
 - ⭐ Github : **[Nguyễn Huy Hoàng](https://github.com/erislovely)**
 
-- ⭐ Zalo: **[Nguyễn Huy Hoàng](0338115856)**
+- ⭐ Zalo : **[Nguyễn Huy Hoàng](0338115856)**
+
+- ⭐ Website : **[Nguyễn Huy Hoàng - Delver](hoangsiuzip.blogspot.com)**
 
 - -------------------------------------------------
 - **Thanks For Reading** 🔥🔥🔥
