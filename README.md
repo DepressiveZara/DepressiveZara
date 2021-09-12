@@ -18,7 +18,7 @@ Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **Chúa tể 
 
 - ❄ Học sinh **THPT**
 
-- ❄ Date of birth : **17/12/2005**
+- ❄ Ngày tháng năm sinh : **17/12/2005**
 
 - ❄ Chiều cao : **1m7**
 
