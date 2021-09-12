@@ -24,7 +24,7 @@ Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **Chúa tể 
 
 - ❄ Cân nặng : 5x .__.
 
-- ❄ Tính cách : vừa **ngu**, vừa **thiểu năng**
+- ❄ Tính cách : vừa **ngu**, vừa **toxic**
 
 - ❄ Tôi học tập và  sinh sống tại **Bắc Ninh**
 
