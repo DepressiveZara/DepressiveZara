@@ -56,7 +56,7 @@ Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **Chúa tể 
 
 - ❄ Tiktok : **[Nguyễn Huy Hoàng](https://www.tiktok.com/@privacy_eris)**
 
-- ❄ Website : **[Hoangsiuzip](https://www.hoangsiuzip.blogspot.com)**
+- ❄ Website : **[Hoangsiuzip](https://hoangsiuzip.blogspot.com)**
 
 - -------------------------------------------------
 - **Thanks For Reading**  👑
