@@ -22,7 +22,7 @@ Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **Chúa tể 
 
 - ❄ Chiều cao : **1m7**
 
-- ❄ Cân nặng : 5x .__.
+- ❄ Cân nặng : 5x (Không nghiện đâu)
 
 - ❄ Tính cách : vừa **ngu**, vừa **toxic**
 
