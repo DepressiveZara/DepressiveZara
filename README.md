@@ -1,6 +1,6 @@
 <h1> Xin chào <img src="https://github.com/souvikguria98/souvikguria98/blob/master/Hi.gif" width="25"></h1> 
 
-Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **Chúa tể Quibu** ❄
+Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **ZaraTD**  🔒🔑
 
 
 
