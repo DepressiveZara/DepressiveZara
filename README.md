@@ -5,7 +5,7 @@ Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **ZaraTD**  �
 
 
 <p align="center">
-    <img align="center" alt="GIF" src="https://i.imgur.com/LBUUs4P.gif" />
+    <img align="center" alt="GIF" src="https://images.ctfassets.net/q41566h7mydg/1IDvJyygI0MkCwI6qCK2wS/4bcb3fc04cec43dc77e73f0487954960/BSoD.gif" />
 </p> 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=DepressiveZara&label=Profile%20views&color=0e75b6&style=flat" alt="DepressiveZara" /> <img alt="visitors" src="https://visitor-badge.laobi.icu/badge?page_id=DepressiveZara"></p>
 
