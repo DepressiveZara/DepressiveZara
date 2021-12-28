@@ -22,7 +22,7 @@ Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **ZaraTD**
 
 - ❄ Chiều cao : **1m7**
 
-- ❄ Cân nặng : 5x (Không nghiện đâu)
+- ❄ Cân nặng : **5x** (Không nghiện đâu)
 
 - ❄ Tính cách : vừa **ngu**, vừa **toxic**
 
