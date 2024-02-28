@@ -1,6 +1,6 @@
 <h1> Xin chào <img src="https://media2.giphy.com/media/WhoNyvVjuB88HjDK0l/giphy.gif?cid=6c09b952310fd72229b8bcba243541749caee1e64b818e7c&rid=giphy.gif&ct=g " width="25"></h1> 
 
-Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **ZaraTD**
+Tớ tên là **Nguyễn Huy Hoàng**
 
 
 
@@ -19,14 +19,6 @@ Tớ tên là **Nguyễn Huy Hoàng** hay còn có biệt danh là **ZaraTD**
 - ❄ Học sinh **THPT**
 
 - ❄ Ngày sinh : **17/12/200x**
-
-- ❄ Chiều cao : **1m7**
-
-- ❄ Cân nặng : **6x** (Không nghiện đâu)
-
-- ❄ Tính cách : vừa **ngu**, vừa **toxic**
-
-- ❄ Tôi học tập và sinh sống tại **Bắc Ninh**
 
 
 
